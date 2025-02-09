@@ -25,9 +25,9 @@ tags:
 
 바이퍼 영입 시도를 했으나 자금 문제로 실패한 걸로 알려져있는데, 데프트 영입이면 남은 영입 대상 중 가장 훌륭한 영입이라고 생각된다.
 
-![Canna](../img/2022/lck/dk_canna.jpg)
+![Canna](../fan/img/2022/lck/dk_canna.jpg)
 
-![Deft](../img/2022/lck/dk_deft.jpg)
+![Deft](../fan/img/2022/lck/dk_deft.jpg)
 
 칸나 역시 리그 상위권 탑솔러였고, 데프트야 말할 거 없는 레전드다.
 

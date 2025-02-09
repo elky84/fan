@@ -14,13 +14,13 @@ tags:
 
 분명 리그에서 손꼽히는 미드 필더로 성장했다는 것은 다양한 선정 결과로도, 경기 내용으로도 증명했다.
 
-![](../img/2023/lee_kang_in_01.jpg)
+![](../fan/img/2023/lee_kang_in_01.jpg)
 
-![](../img/2023/lee_kang_in_02.jpg)
+![](../fan/img/2023/lee_kang_in_02.jpg)
 
 AT 마드리드로의 이적이 유력했으나, PSG에 더 가까워졌다는 보도가 나오고 있다.
 
-![](../img/2023/lee_kang_in_03.jpg)
+![](../fan/img/2023/lee_kang_in_03.jpg)
 
 라 리가의 상징으로 성장할 수 있지 않을까 하는 기대를 하기도 했는데, PSG라니..?
 
@@ -28,7 +28,7 @@ AT 마드리드로의 이적이 유력했으나, PSG에 더 가까워졌다는 �
 
 그럼에도 이런 합성 사진도 나올 만큼, 많은 사람들이 큰 기대감을 품는 것 같다.
 
-![](../img/2023/lee_kang_in_04.jpg)
+![](../fan/img/2023/lee_kang_in_04.jpg)
 
 https://www.youtube.com/watch?v=FflxKgPl4mw
 

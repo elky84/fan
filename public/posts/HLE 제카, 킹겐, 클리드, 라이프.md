@@ -17,13 +17,13 @@ tags:
 
 유스 선수 위주로 한 시즌을 보낸 한화 생명이 로스터를 완성했다.
 
-![Zeka](../img/2022/lck/hle_zeka.jpg)
+![Zeka](../fan/img/2022/lck/hle_zeka.jpg)
 
-![Kingen](../img/2022/lck/hle_kingen.jpg)
+![Kingen](../fan/img/2022/lck/hle_kingen.jpg)
 
-![Clid, Life](../img/2022/lck/hle_clid_life.png)
+![Clid, Life](../fan/img/2022/lck/hle_clid_life.png)
 
-![Viper](../img/2022/lck/return_viper_01.png)
+![Viper](../fan/img/2022/lck/return_viper_01.png)
 
 먼저 영입된 바이퍼와, 유스 출신 두두, 그리고 제카, 킹겐, 클리드, 라이프다.
 
