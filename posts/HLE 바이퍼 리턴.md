@@ -18,11 +18,11 @@ tags:
 
 작년에 아낀 돈을 올해 쓸 수 있는 것인지 역대급 슈퍼팀이 결성 될 지 모른다는 소식이 유력했는데, 그 시작으로 바이퍼가 2년만에 복귀하게 됐다.
 
-![Viper](../img/2022/lck/return_viper_01.png)
+![Viper](../fan/img/2022/lck/return_viper_01.png)
 
-![Viper](../img/2022/lck/return_viper_02.png)
+![Viper](../fan/img/2022/lck/return_viper_02.png)
 
-![Viper](../img/2022/lck/return_viper_03.png)
+![Viper](../fan/img/2022/lck/return_viper_03.png)
 
 https://www.youtube.com/watch?v=P_Ix-fS3d24
 

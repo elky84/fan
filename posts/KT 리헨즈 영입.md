@@ -12,7 +12,7 @@ tags:
 
 ## KT 로스터 완성
 
-![Zeka](../img/2022/lck/kt_lehends.png)
+![Zeka](../fan/img/2022/lck/kt_lehends.png)
 
 탑 - 기인 / 정글 - 커즈 / 미드 - BDD / 원딜 - 에이밍 / 서폿 - 리헨즈
 

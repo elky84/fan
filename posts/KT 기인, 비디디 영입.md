@@ -26,9 +26,9 @@ tags:
 
 그리고 기인이 합류했고, 비디디가 4년만에 복귀한다.
 
-![Kiin](../img/2022/lck/kt_kiin.jpg)
+![Kiin](../fan/img/2022/lck/kt_kiin.jpg)
 
-![BDD](../img/2022/lck/kt_bdd.jpg)
+![BDD](../fan/img/2022/lck/kt_bdd.jpg)
 
 비디디는 지난 시즌은 아쉬웠지만, 반지 원정대가 보여준 활약도 좋은 감독과 코치진이었다면 기대해 볼만한 활약이었기에 상수 역할을 충분히 해줄 수 있을 거라고 생각한다.
 
